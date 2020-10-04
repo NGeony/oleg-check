@@ -1,1 +1,1 @@
-Fuck The Python
+Join to My Team
